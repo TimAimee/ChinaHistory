@@ -1,6 +1,6 @@
 # ChinaHistory
 
-## [中国通史](https://www.bilibili.com/video/av6547465)  
+## [中国通史观看笔记](https://www.bilibili.com/video/av6547465)  
 
 # 01-02
 
